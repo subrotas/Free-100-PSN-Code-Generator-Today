@@ -1,4 +1,4 @@
-# Free-100-PSN-Code-Generator-Today
+# Free-$100-PSN-Code-Generator-Today
 Introduction
 
 Who wouldn’t love free PlayStation Network (PSN) codes? Imagine getting $100 to spend on your favorite games, add-ons, and subscriptions without spending a dime. The internet is filled with offers claiming to provide free PSN codes, but are they legit? In this article, we’ll explore the truth about free PSN code generators, how they work, and whether you should trust them.
